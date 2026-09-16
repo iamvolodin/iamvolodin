@@ -2,7 +2,7 @@
 
 ### C#/.NET Developer, **7+ years** of experience, GMT+2
 
-📧 [iamvolodin10@gmail.com](mailto:iamvolodin10@gmail.com) &nbsp;·&nbsp; 💼 [linkedin.com/in/ivan-volodin/](https://linkedin.com/in/ivan-volodin/) &nbsp;·&nbsp; 🐙 [github.com/iamvolodin](https://github.com/iamvolodin)
+📱 [WhatsApp: +49 152 339 68578](https://wa.me/4915233968578) &nbsp;·&nbsp; 📧 [iamvolodin10@gmail.com](mailto:iamvolodin10@gmail.com) &nbsp;·&nbsp; 💼 [linkedin.com/in/ivan-volodin/](https://linkedin.com/in/ivan-volodin/) &nbsp;·&nbsp; 🐙 [github.com/iamvolodin](https://github.com/iamvolodin)
 
 ---
 
